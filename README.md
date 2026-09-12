@@ -1,6 +1,6 @@
-h8<p align="center"> 
+<p align="center"> 
   
-  <img src="https://file.garden/aISt_zQ_QkPKQZx-/For%20friends/Yui/Mi%20group.png" width="700"> 
+  <img src=“https://file.garden/aISt_zQ_QkPKQZx-/For%20friends/Yui/Untitled20.jpeg”>
   
   </p>
 
